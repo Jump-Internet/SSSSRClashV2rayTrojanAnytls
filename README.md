@@ -58,7 +58,7 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
 - [👉 官网地址](https://vip.xn--h5qy56dzhb.vip/#/register?code=OdyZEGNV)
 
 ### 6）[Snaillink](https://snaillink.net/register?code=EjntInlR)
-    &emsp;&emsp;IEPL 国际专线线路，不限速 SS 机场，面向高频使用与稳定需求场景，体验更稳、延迟更低。节点包括：香港，澳门，台湾，日本，新加坡，美国，韩国，马来西亚，泰国，土耳其，印度尼西亚，英国，法国，澳大利亚，加拿大，波兰，瑞士，印度等。解锁Netflix、Disney+、Hulu、HBO、、AmazonPrime等主流流媒体。 解锁 ChatGPT。**新用户注册即可免费试用 2小时 5GB流量，新用户 8 折优惠码：`off20fornew`**。
+   &emsp;&emsp;IEPL 国际专线线路，不限速 SS 机场，面向高频使用与稳定需求场景，体验更稳、延迟更低。节点包括：香港，澳门，台湾，日本，新加坡，美国，韩国，马来西亚，泰国，土耳其，印度尼西亚，英国，法国，澳大利亚，加拿大，波兰，瑞士，印度等。解锁Netflix、Disney+、Hulu、HBO、、AmazonPrime等主流流媒体。 解锁 ChatGPT。**新用户注册即可免费试用 2小时 5GB流量，新用户 8 折优惠码：`off20fornew`**。
 - [👉 官网地址](https://snaillink.net/register?code=EjntInlR)
 
 ### 7）[SausageCloud（烤肠）](https://www.kaochang.org/#/register?code=4ql9ZTfR)
