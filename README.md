@@ -45,9 +45,9 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
    &emsp;&emsp;传说中的一元机场，性价比no.1机场，突破超低价，同时能保证速度稳定，解锁Netflix、Disney+、Hulu等主流流媒体， 解锁 ChatGPT。登录设备无个数限制，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，**新用户注册可免费试用 3 天100g流量，白菜价年付只要13元，且拥有100G/月大流量，相当nice。**
 - [👉 官网地址](https://web.fscloud.app/#/register?code=mAMmbdAY)
 
-### 3）[魔戒](https://mojie.2gou.ren/register?aff=PvsYeQN4)
+### 3）[魔戒](http://mojie.host/register?aff=PvsYeQN4)
   &emsp;&emsp;专注于不限速，永久流量的机场，**所有套餐都不限时**，不限制人数，纯流量计费大机场，多人共享无压力，真正做到无限制上网。节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低至 1 元**。
-- [👉 官网地址](https://mojie.2gou.ren/register?aff=PvsYeQN4)
+- [👉 官网地址](http://mojie.host/register?aff=PvsYeQN4)
 
 ### 4）[StarTrail星轨](https://plinkc.sbs/#/register?code=BosKf4eJ)
    emsp;&emsp;全中转大机场，拥有 100+ 节点，4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**提供不限时流量，用完即止。月付最低16.8，拥有198G大流量，独家提供海外用户回流套餐**
