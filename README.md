@@ -65,15 +65,11 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
    &emsp;&emsp;**注册完成即可免费体验**，全大陆BGP三网中转优化大机场，最多可支持四台设备同时连接，4K秒开，工单秒回复，流媒体解锁支持。节点包括：美国，新加坡，香港，日本，台湾，马来西亚，印度，俄罗斯，土耳其，波兰。工单回复快。采用最新 hysteria2、reality 协议，提供更快、更稳定的连接体验。**一元即可测试，最低8元/月，享有100G大流量，全节点可用。**
 - [👉 官网地址](https://www.kaochang.org/#/register?code=4ql9ZTfR)
 
-### 8）[SKYLUMO](https://skylumo.com/#/register?code=AGlKkKX1)
- &emsp;&emsp;超高性价比机场，节点地区包括香港，台湾，日本，新加坡，美国，韩国，英国、荷兰、意大利、加拿大、瑞典、芬兰、波兰、奥地利、澳大利亚等。原生IP、解锁流媒体Netflix、Disney+、Youtube等主流媒体，解锁ChatGPT。**基础套餐年付低至白菜价9.9元，每月自动重置**，相当划算。
-- [👉 官网地址](https://skylumo.com/#/register?code=AGlKkKX1)
-
-### 9）[Miaona](https://miaona.co/#/register?code=VeKwsak1)
+### 8）[Miaona](https://miaona.co/#/register?code=VeKwsak1)
    &emsp;&emsp;高端深港 IEPL 专线，采用 SS 协议，4K 清晰不卡、8K 流畅，确保稳定的流媒体解锁体验.节点支持香港，台湾，美国，日本，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，印度，巴西，德国，英国，土耳其，法国，阿根廷，尼日利亚，澳大利亚等，让你的上网体验更加丰富多彩。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。年付套餐最低仅 15.6 元/月，让高品质网络服务唾手可得！
 - [👉 官网地址](https://miaona.co/#/register?code=VeKwsak1)
 
-### 10）[Eueu](https://eueuwith.top/#/register?code=4RIVYN3d)
+### 9）[Eueu](https://eueuwith.top/#/register?code=4RIVYN3d)
    &emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！7x12H在线客服服务支持!
 - [👉 官网地址](https://eueuwith.top/#/register?code=4RIVYN3d)
 
