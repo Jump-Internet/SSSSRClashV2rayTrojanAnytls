@@ -37,9 +37,9 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
 
 ## 机场推荐
 
-### 1）[Godetia](https://ssltd.xyz/#/register?code=DWZDIVnj)
- &emsp;&emsp;全IPLC专线，多线BGP入口大机场，智能接入点分配，专线传输。节点包括香港、台湾、日本、韩国、美国等基础地区，和新加坡、英国、德国、澳洲、俄罗斯、荷兰、新西兰、巴西、阿根廷、土耳其、菲律宾、泰国、加拿大、马来西亚、越南、法国、西班牙、巴基斯坦、南极、印度尼西亚、埃及、尼日尼亚等特殊地区，提供部分国家的家宽节点。全地区流媒体解锁。解锁 ChatGPT。登录设备无个数限制。支持海外人士直连。
-- [👉 官网地址](https://ssltd.xyz/#/register?code=DWZDIVnj)
+### 1）[E-IX](https://e-ix.cloud/#/register?code=pDUYUh3F)
+ &emsp;&emsp;老牌高端大机场，BGP+IPLC 专线传输，节点包括：香港，澳门，日本，台湾，新加坡，美国，马来西亚，泰国，菲律宾，越南，印度尼西亚，澳大利亚，新西兰，韩国，阿根廷，德国 ，英国，法国，荷兰，芬兰，挪威，俄罗斯，罗马尼亚，加拿大，墨西哥，巴西，意大利，爱尔兰 ，保加利亚，瑞典，西班牙，匈牙利，乌克兰，南非等数十个国家和地区。支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体。独家保障新疆地区，支持Windows/Mac/鸿蒙/iOS/Android/路由器，多设备同时使用。注册即享 3 天免费体验
+- [👉 官网地址](https://e-ix.cloud/#/register?code=pDUYUh3F)
 
 ### 2）[FSCloud](https://web.fscloud.app/#/register?code=mAMmbdAY)
    &emsp;&emsp;传说中的一元机场，性价比no.1机场，突破超低价，同时能保证速度稳定，解锁Netflix、Disney+、Hulu等主流流媒体， 解锁 ChatGPT。登录设备无个数限制，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，**新用户注册可免费试用 3 天100g流量，白菜价年付只要13元，且拥有100G/月大流量，相当nice。**
@@ -72,6 +72,10 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
 ### 9）[Eueu](https://eueuwith.top/#/register?code=4RIVYN3d)
    &emsp;&emsp;全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！7x12H在线客服服务支持!
 - [👉 官网地址](https://eueuwith.top/#/register?code=4RIVYN3d)
+
+### 10）[Godetia](https://ssltd.xyz/#/register?code=DWZDIVnj)
+ &emsp;&emsp;全IPLC专线，多线BGP入口大机场，智能接入点分配，专线传输。节点包括香港、台湾、日本、韩国、美国等基础地区，和新加坡、英国、德国、澳洲、俄罗斯、荷兰、新西兰、巴西、阿根廷、土耳其、菲律宾、泰国、加拿大、马来西亚、越南、法国、西班牙、巴基斯坦、南极、印度尼西亚、埃及、尼日尼亚等特殊地区，提供部分国家的家宽节点。全地区流媒体解锁。解锁 ChatGPT。登录设备无个数限制。支持海外人士直连。
+- [👉 官网地址](https://ssltd.xyz/#/register?code=DWZDIVnj)
 
 ---
 
