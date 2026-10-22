@@ -98,6 +98,26 @@ Linux：Shell clash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的
   
   👉 [网站地址](https://addyoutube.com/)
 
+- **[一诺社工库](https://t.me/xiaohaige_wangshubot?start=gnpNw9HLkXKN4LO)**  
+ 查人，查全家，开盒！
+  
+  👉 [网站地址](https://t.me/xiaohaige_wangshubot?start=gnpNw9HLkXKN4LO)
+
+- **[情报部社工库](https://t.me/qingbaobu?start=NzU5NzkyNzQ2Nw==)**  
+ 查人，查全家，开盒！
+  
+  👉 [网站地址](https://t.me/qingbaobu?start=NzU5NzkyNzQ2Nw==)
+
+- **[天眼社工库](https://t.me/tianyanSGKbot?start=NzU5NzkyNzQ2Nw==)**  
+ 查人，查全家，开盒！
+  
+  👉 [网站地址](https://t.me/tianyanSGKbot?start=NzU5NzkyNzQ2Nw==)
+
+- **[查档王社工库](https://t.me/cd777?start=NzU5NzkyNzQ2Nw==)**  
+ 查人，查全家，开盒！
+  
+  👉 [网站地址](https://t.me/cd777?start=NzU5NzkyNzQ2Nw==)
+
 ---
 
 😊 **最后**：  
